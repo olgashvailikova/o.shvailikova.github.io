@@ -1,1 +1,0 @@
-# o.shvailikova.github.io
